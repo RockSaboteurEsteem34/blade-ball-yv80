@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for blox fruits is the best blox fruits Script, featuring anti-ban and fly. Safe and powerful for all your needs.
 
 
 
